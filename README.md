@@ -8,7 +8,7 @@
 
 
 
-🎞 **Youtube 영상**
+🎞 **Youtube 영상 (https://youtu.be/9TxJY9HkMYU)**
 
 
 
